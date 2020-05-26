@@ -10,7 +10,7 @@ Daarom zorgen wij daar nu voor. We hebben lang genoeg toegekeken hoe zorgverzeke
 
 Jij kunt opkomen voor de zorg. Jij kunt je stem laten horen en de zorgverzekeraars laten weten dat jij de zorg wilt waarderen voor wat ze verdienen. Jij kunt de Eed voor de helden in de zorg afleggen. 
 
-# Eed voor de zorg-helden
+# Eed voor de helden van de zorg
 
 Ik zweer / beloof dat ik als afnemer van zorg:
 
